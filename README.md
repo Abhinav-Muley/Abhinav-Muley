@@ -8,7 +8,7 @@
 <h1 align="left">It's Abhinav Muley</h1>
 
 ###
-<img align="right" height="250" src="https://media1.tenor.com/m/s9-dLmjOyv8AAAAC/anime-asta.gif"  />
+<img align="right" height="250" src="https://media.tenor.com/2vzT-8oPXl8AAAAi/tkthao219-bubududu.gif"  />
 
 ###
 
