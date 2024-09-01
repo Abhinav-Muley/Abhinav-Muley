@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 # It's Abhinav Muley
 
 
-                                                                             | Engineer | Web Developer | Game Programmer |
+               | Engineer | Web Developer | Game Programmer |
                                                                             
                   Get in Touch - abhinavmule13@gmail.com
 🌟 Passionate Web Developer & UI/UX Enthusiast at xScientist Tech LLP
