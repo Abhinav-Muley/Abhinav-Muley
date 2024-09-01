@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="200" src="https://media1.tenor.com/m/s9-dLmjOyv8AAAAC/anime-asta.gif"  />
+<img align="right" height="200" src="https://drive.google.com/file/d/1qsGuYqjxgVgWFvpy2wxuBmncLhAa9q2u/view?usp=drive_link"  />
 
 ###
 
